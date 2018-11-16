@@ -1,3 +1,5 @@
-The TRONSiliconValley team is composed of Engineers from TRON and the community.
+THE WIN Token Team team is composed of a community of people like YOU!
 
-We Pay 90% of rewards to voters, with the remaining rewards going to server costs.
+We're here to support both WIN token and www.casinoTRON.io to become the biggest platform on TRON!
+
+We pay 100% REWARDS, in addition to bonuses in WIN!
