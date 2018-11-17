@@ -15,10 +15,6 @@ https://TRONBaccarat.com
 
 ---
 
-![alt text][logo]
-
-[logo]: https://i.imgur.com/8mj0HXV.jpg "Logo Title Text 2"
-
 
 
 We also launched the FIRST GAMING TOKEN on the TRON Network, WIN
