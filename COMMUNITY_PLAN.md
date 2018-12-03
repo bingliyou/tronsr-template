@@ -6,15 +6,7 @@ We also are extremely active in the developer community and have partnerships wi
 
 We plan to produce many DAPPS internally as well to build a better network.
 
-Check out our first dapp, TRON Baccarat!
-
-
-https://TRONBaccarat.com
-
-
-
----
-
+https://WINTokenGames.com
 
 
 We also launched the FIRST GAMING TOKEN on the TRON Network, WIN
