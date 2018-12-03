@@ -1,3 +1,3 @@
-We're fully funded by proceeds from www.casinoTRON.io games!
+We pay out 85% rewards.
 
-That means more rewards for you!
+15% goes to server fees and also the prize pools for our games!
